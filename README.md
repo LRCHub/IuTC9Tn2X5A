@@ -1,4 +1,4 @@
-# uyama hiroto – South Side
+# uyama hiroto – South Side（feat. Shing02）
 
 > **歌詞登録ステータス：同期歌詞あり**
 
